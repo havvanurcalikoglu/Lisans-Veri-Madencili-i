@@ -1,0 +1,1 @@
+# Lisans-Veri-Madencili-i
