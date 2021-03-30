@@ -1,1 +1,1 @@
-# Lisans-Veri-Madenciligi
+# Lisans-VeriMadenciligi
